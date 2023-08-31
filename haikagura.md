@@ -1,7 +1,7 @@
 # A Cloud of Ash
 ### Edogawa Ranpo
 #### 1. 
-	In the blink of an eye, just as if a doll made of mud had crumbled into nothing, the man in front of him slumped limply onto the desk between them. His face pressed directly onto the surface with such force that one wondered if the bridge of his nose would snap. And between the yellow skin of that face and the blue tablecloth flowed a profuse stream of liquid, as bright red as a camellia.
+In the blink of an eye, just as if a doll made of mud had crumbled into nothing, the man in front of him slumped limply onto the desk between them. His face pressed directly onto the surface with such force that one wondered if the bridge of his nose would snap. And between the yellow skin of that face and the blue tablecloth flowed a profuse stream of liquid, as bright red as a camellia.
 	A cast-iron kettle had been overturned in the commotion, and a cloud of ash danced upwards from the large, square brazier of paulownia wood, as if a volcano had erupted, intermingling with the smoke from the pistol, sealing off the room in a dense fog.
 	In an instant, the world had changed, as if the backdrop to a stage play had come crashing down. A strange feeling came over Shotaro.
 	“Well, now, what a situation I’ve gotten into,” he said, altogether unconcerned. 
