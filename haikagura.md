@@ -251,7 +251,7 @@ Shotaro could just barely restrain his smile.
 
 But who was the third individual behind them? Some sort of shopkeeper? Shotaro felt as if he had seen the man somewhere before. But no matter how hard he racked his brains, he couldn’t place the man in his memory. 
 
-“I take it you are Kawai Shotaro.” the detective said haughtily. “Boss, you’re sure this is the guy?”
+“I take it you are Kawai Shotaro,” the detective said haughtily. “Boss, you’re sure this is the guy?”
 
 To which this “boss” immediately nodded. “Yes, no doubt about it.”
 
