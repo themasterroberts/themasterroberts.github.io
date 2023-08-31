@@ -138,7 +138,9 @@ Shotaro had successfully pulled off his audacious plan. If things continued, no 
 	“You hid it there, and you found it, too. That’s all there is to it,” Jiro proclaimed, smiling.
 	No doubt Shotaro’s criminal undertakings were foolish, but one must admit, he put quite a bit of care into them.
 
+
 *First [published](https://www.aozora.gr.jp/cards/001779/files/57510_64374.html) in Popular Literature Magazine (Taishuu Bungei), March 1926 (Taisho 15)*
+
 *Translated by themasterroberts in August 2023*
 
 [^1]: Approximately equal to 4 kilometres.
